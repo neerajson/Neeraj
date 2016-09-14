@@ -1,1 +1,1 @@
-# Neeraj
+I am Neeraj Soni.I am from Bhopal(M.P.). I have done my Engineering from Technocrats Institute Of Technology with Computer Science And Engineering as my branch.my hobbies are to designing the code and watching inspretional movies.
